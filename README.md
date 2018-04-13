@@ -1,10 +1,11 @@
-Dances with the dark arts • Chaotic Good • Blue Team • Mischievous Architect • @_ctfjawn • @defconphilly DC☠215
+Dances with the dark arts • Chaotic Good • Blue Team • Mischievous Architect •
+@_ctfjawn • @defconphilly DC☠215
 
 **Social Media**
 
-GitHub: https://github.com/clayball
-Twitter: @_clayball
-SpeakerDeck: http://www.speakerdeck.com/clayball
+- GitHub: https://github.com/clayball
+- Twitter: @_clayball
+- SpeakerDeck: http://www.speakerdeck.com/clayball
 
 
 **Interests**
